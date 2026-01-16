@@ -1,10 +1,6 @@
 # 👩‍💻 Saipuja Mohapatra — AI & Machine Learning Engineer
 
-📍 Paradeep, Odisha, India  
-📞 8144483142  
-📧 saipujamohapatra96@gmail.com  
-🔗 GitHub: https://github.com/mohapatrasai  
-🔗 LinkedIn: https://www.linkedin.com/in/sai-puja-mohapatra-816a86284  
+4  
 
 ---
 
